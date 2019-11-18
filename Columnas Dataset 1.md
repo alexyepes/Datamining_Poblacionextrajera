@@ -1,2 +1,2 @@
 # Columnas Dataset 1
-![descarga](https://user-images.githubusercontent.com/56943051/68998521-7860cf00-08b3-11ea-8332-f824372770bb.jpg)
+![Columnas 1](https://user-images.githubusercontent.com/56943051/69019408-8af40a80-097e-11ea-866a-3441895225b4.png)
